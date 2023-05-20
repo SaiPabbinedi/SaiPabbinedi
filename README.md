@@ -22,8 +22,8 @@ I am actively seeking opportunities to collaborate with like-minded individuals,
 
 If you'd like to get in touch or learn more about my journey, you can reach me via:
 
-- 📧 Email: [your.email@example.com](mailto:your.email@example.com)
-- 🌐 LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/yourprofile)
+- 📧 Email: [Email](mailto:saikumarpabbinedi@gmail.com)
+- 🌐 LinkedIn: [Satya Pabbinedi](https://www.linkedin.com/in/satyapabbinedi123/)
 
 Let's embark on this exciting technological voyage together! 🚀
 
